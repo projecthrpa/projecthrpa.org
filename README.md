@@ -1,6 +1,7 @@
 # Mirana's Proposal
 ## For Hope Risks and Potential Actualization
 ### By [Kayo4life](https://kayo4.life)
+[<small>If you use a screen reader, click this link for a human readaloud!</small>](https://raw.githubusercontent.com/projecthrpa/projecthrpa.org/refs/heads/main/May%206%20at%2015-22.m4a)
 
 ---
 
