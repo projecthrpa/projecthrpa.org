@@ -47,3 +47,5 @@ I, and most if not all other humans, are not smart enough to figure out how to m
 The first *instrumental* goal that I set in service of our *terminal* goals is to assemble some passionate nerds, so we may set aside our differences and put our heads together to figure out how to work on these, forming **The Project HRPA Council**.<br>So, I call upon you to join me, in making a more hopeful future ;)
 
 Mira, from Mirana's Proposal for Hope Risks and Potential Actualization, signing off.
+
+contact@projecthrpa.org
