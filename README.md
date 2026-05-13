@@ -48,4 +48,4 @@ The first *instrumental* goal that I set in service of our *terminal* goals is t
 
 Mira, from Mirana's Proposal for Hope Risks and Potential Actualization, signing off.
 
-contact@projecthrpa.org
+To contact us, simply open your mail app. We have *all* the online mail addresses, so you need not worry about using the right username, though the preferred one is `contact`. Spam will be sent to the fraud reporting center of your jurisdiction. If you do not know if you are spamming or not, you are not spamming, and feel free to send it to us! *Pretty please* do not spam us. We really do not appreciate that.
